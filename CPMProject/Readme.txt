@@ -1,1 +1,0 @@
-Javier Díez García, 53774289J, UO250728, L-I-2
